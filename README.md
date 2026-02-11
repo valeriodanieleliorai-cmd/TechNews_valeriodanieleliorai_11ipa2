@@ -1,0 +1,1 @@
+# TechNews_valeriodanieleliorai_11ipa2
